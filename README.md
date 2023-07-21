@@ -1,5 +1,6 @@
 ### Software Engineer 💻
 
-#### Fitness & food enjoyer 💪🏻
+#### Healthy living enjoyer 💪🏻
 ***
-#### Reach out @ <a href="https://jfajardo.net">https://jfajardo.net</a> !
+#### Sometimes I write about my experiences
+<a href="https://blog.jfajardo.net" target="_blank">https://blog.jfajardo.net</a>
